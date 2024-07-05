@@ -1,1 +1,0 @@
-# Nearby-shops-android-app
